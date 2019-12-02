@@ -30,4 +30,5 @@
 	The other three would suffer. 
 	Particularly if there is a bounty system.
 	A penalty of non-informed change of allegence. Would be helpful.
+	Also an increase of save of face behavior would likely be observed
 	
